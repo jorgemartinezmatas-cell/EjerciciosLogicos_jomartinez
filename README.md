@@ -1,1 +1,0 @@
-# EjerciciosLogicos_jomartinez
